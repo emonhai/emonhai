@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @emonhai
-- 👀 I’m interested in cs and math
+- 👀 I’m interested in cs, math, music
 - 🌱 I’m currently learning AP CSP
-- 📫 How to reach me discord (3m0n)
+- 📫 discord (3m0n)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i love tea
 
